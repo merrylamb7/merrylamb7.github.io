@@ -6,9 +6,13 @@ permalink: /about/
 
 Some information about you!
 
-### More Information
+### Profile
 
-A place to include any other types of information that you'd like to include about yourself.
+#### Who AM I?
+i am daniel yang in seoul christian school in bongcheon in seoul -South Korea.
+
+#### Dreams.
+my dream is to be consellor and lead teenager where god wants for them
 
 ### Contact me
 
