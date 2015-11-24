@@ -16,4 +16,4 @@ my dream is to be consellor and lead teenager where god wants for them
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[danielyang@seoulchristian.org](danielyang@seoulchristian.org)
